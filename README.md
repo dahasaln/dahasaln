@@ -1,4 +1,4 @@
-# ***Dasha Salnikova*** :four_leaf_clover:
+# ***Dasha Salnikova***:four_leaf_clover:
 ## QA Junior :white_check_mark:
 ___
 ### Личные качества:
